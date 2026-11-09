@@ -1,4 +1,4 @@
-## Hi there 👋
+## Get to know me...
 
 <!--
 **Youwei04/Youwei04** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
