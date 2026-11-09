@@ -1,5 +1,5 @@
-###專長:doom scrolling reels and stuf
+專長:doom scrolling reels and stuf
 
-###經歷:輔仁大學統資系就學中
+經歷:輔仁大學統資系就學中
 
-###信箱:chang66346652@gmail.com
+信箱:chang66346652@gmail.com
