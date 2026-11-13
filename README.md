@@ -1,4 +1,4 @@
-專長:doom scrolling reels and stuff
+專長:統計時序建模 & 資料分析
 
 經歷:輔仁大學統資系就學中
 
